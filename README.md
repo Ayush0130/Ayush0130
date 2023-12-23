@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ayush0130 , a first year Btech student at IIT Guwahati majoring in Mathematics and Computing.
 - 👀 I’m interested in learning new things and mastering old things.
-- 🌱 I’m currently try to be a better version of me.
+- 🌱 I’m currently trying to be a better version of me.
 - 💞️ I’m looking to collaborate on any project that will help me achieve success in my field.
 - 📫 reach me on instagram at ayushkr0130.
 
